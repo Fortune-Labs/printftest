@@ -1,3 +1,13 @@
 # Something 
+## Joyce
+1. 
+2. 
 
-## Details
+
+## Wisdom
+3. 
+4. 
+
+## Jeff
+5. 
+
