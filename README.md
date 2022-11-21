@@ -5,8 +5,8 @@
 
 
 ## Wisdom
-3. 
-4. 
+3. doing hard things
+4. is really hard ooo!!!
 
 ## Jeff
 5. 
